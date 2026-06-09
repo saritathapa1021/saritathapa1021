@@ -1,4 +1,4 @@
-# Hi, I'm Sarita Thapa 👋
+# Hi, I'm Sarita  👋
 
 📍 Houston, Texas
 
